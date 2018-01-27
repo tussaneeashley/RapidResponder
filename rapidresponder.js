@@ -1,5 +1,7 @@
 <!-- Pixelhacks II 1/27/18
-TEAM MEMBERS: Jenny, Brycedia, Litzy
+TEAM MEMBERS: Jenny, Brycedia, Litzy, Tussanee Ashley
  -->
+
+
 
  
